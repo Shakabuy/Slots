@@ -1,1 +1,1 @@
-# Slots
+# https://yandex.ru/
